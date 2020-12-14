@@ -1,0 +1,11 @@
+We need:
+-Chocolate Chips
+-2 eggs
+-1 cup butter
+-1 cup white sugar
+-1 cup brown sugar
+-2 teaspoons vanilla extract
+-1 teaspoon baking soda
+-1/2 teaspoon salt
+-3 cups all-purpose flour
+-2 teaspoons water

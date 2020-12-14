@@ -1,0 +1,2 @@
+This is the recipe to make chocolate chip cookies. They are a very delicious dessert to eat. I personally love chocolate chip cookies the most out of all the cookies.
+They are very sweet and can be made as big or small as you want. They will turn out nice and round. It will be a pleasure to eat it.
