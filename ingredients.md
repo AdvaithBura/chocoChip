@@ -8,4 +8,4 @@ We need:
 -1 teaspoon baking soda
 -1/2 teaspoon salt
 -3 cups all-purpose flour
--2 teaspoons water
+-2 teaspoons hot water
